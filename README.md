@@ -12,7 +12,7 @@ Aquí publico las skills y guías que uso con mis alumnos y clientes, con las pr
 
 ## Dónde seguirme
 
-- [LinkedIn](https://www.linkedin.com/in/TU-PERFIL)
+- [LinkedIn](https://www.linkedin.com/in/jpdelal)
 - [Mentinno Insights](https://mentinno.com) (newsletter)
 - [ORCID](https://orcid.org/0000-0002-5444-1691)
 
